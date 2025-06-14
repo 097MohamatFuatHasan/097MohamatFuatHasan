@@ -23,9 +23,9 @@ Selamat datang di profil GitHub saya! Saya adalah seorang mahasiswa yang tertari
 
 ## 📫 Hubungi Saya
 
-- 📧 Email: muhammadafilla.23082@mhs.unesa.ac.id
+- 📧 Email: mohamat.23097@mhs.unesa.ac.id
 - 🌐 Website Portofolio: [Coming Soon]
-- 💼 LinkedIn: [LinkedIn Anda di sini]
+- 💼 LinkedIn: --
 
 ## 💡 Fakta Menarik
 
